@@ -1,4 +1,4 @@
-# Cognitive Technologies
+# Collaborative Technologies
 
 *  Ονοματεπώνυμο: **Σιακαμπέτη Ιωάννα**
 *  Αριθμός Μητρώου: **1075725**
